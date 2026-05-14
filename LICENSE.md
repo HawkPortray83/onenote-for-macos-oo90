@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Evernote for macOS automation with vip Automation for Evernote for macOS - export to PDF and goal tracking. Featuring export to PDF and goal tracking, it's the
 
 
 
